@@ -1,5 +1,9 @@
+![image](https://github.com/user-attachments/assets/05ae0b41-ecd2-412c-b92d-99e93fc95e98)
+
+
 hey ! this account created for ponytown only !
-![image](https://github.com/user-attachments/assets/21a3a857-920f-41d9-8f07-67305d028c01)
+
+
 
 small info : my name is yana , im a 15 and my prns are she/her. im aromantic/cupioromantic
 
