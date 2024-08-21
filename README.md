@@ -19,5 +19,9 @@ I fucking love The Smiths #isolateMorrissey
 
 If Im kissing/cuddling with a pony in a matching skin like Moz x Johnny then its my BEST POOKIE WOOKIE BESTIE fav person and friend ever Sophie!
 
+![image](https://github.com/user-attachments/assets/5043d5f6-5845-4515-beab-e2603a0aee8b)
+
+I don't allow inspo from my skins , do not copy or take inspo from my works plezz !! 
+
 
 ![image](https://github.com/user-attachments/assets/8b8d095e-d785-40f6-92af-8e2b907cb978)
