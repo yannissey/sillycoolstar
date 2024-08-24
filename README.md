@@ -2,12 +2,15 @@
 
 
 
-hey ! this account created for ponytown only !
+Hey ! this account created for ponytown only !
 
 ![image](https://github.com/user-attachments/assets/5043d5f6-5845-4515-beab-e2603a0aee8b)
 
+Go visit my strawpage NOW 😚😚 https://coolstarteaparty.straw.page/
 
-small info : my name is yana , im a 15 and my prns are she/her. im aromantic/cupioromantic
+![image](https://github.com/user-attachments/assets/aa74c40a-9842-4e7e-9a7f-95f9a7a534e8)
+
+Small info : my name is yana , im a 15 and my prns are she/her. im aromantic/cupioromantic
 
 ![image](https://github.com/user-attachments/assets/e40bb2aa-dafc-4e80-b83f-1aadcf5dd1bb)
 
