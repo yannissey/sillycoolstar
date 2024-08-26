@@ -10,12 +10,6 @@ Go visit my strawpage NOW 😚😚 https://coolstarsnail.straw.page/
 
 ![image](https://github.com/user-attachments/assets/aa74c40a-9842-4e7e-9a7f-95f9a7a534e8)
 
-Btw if u want to support me or give me a gift , donate me robux on pls donate :3 user : Cool_star1905UwU ! I'm saving for a Johnny Marr cosplay.
-Any donations are highly appreciated <3 Not forcing ofc lmao
-
-![image](https://github.com/user-attachments/assets/e40bb2aa-dafc-4e80-b83f-1aadcf5dd1bb)
-
-
 I fucking love The Smiths #isolateMorrissey
 
 ![image](https://github.com/user-attachments/assets/aa74c40a-9842-4e7e-9a7f-95f9a7a534e8)
