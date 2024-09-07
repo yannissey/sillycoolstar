@@ -2,7 +2,7 @@
 
 
 
-Hey ! this account created for ponytown only !
+Hey ! U probably came here from ponytown hehe
 
 ![image](https://github.com/user-attachments/assets/5043d5f6-5845-4515-beab-e2603a0aee8b)
 
