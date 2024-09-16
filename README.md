@@ -10,7 +10,7 @@ Go visit my strawpage NOW 😚😚: https://coolstarsnail.straw.page/
 
 ![image](https://github.com/user-attachments/assets/aa74c40a-9842-4e7e-9a7f-95f9a7a534e8)
 
-Follow me on tiktok 💝: https://www.tiktok.com/@.snailmarr
+Follow/moot me on tiktok 💝: https://www.tiktok.com/@.snailmarr
 
 ![image](https://github.com/user-attachments/assets/aa74c40a-9842-4e7e-9a7f-95f9a7a534e8)
 
