@@ -14,7 +14,7 @@ Follow/moot me on tiktok 💝: https://www.tiktok.com/@.snailmarr
 
 ![image](https://github.com/user-attachments/assets/aa74c40a-9842-4e7e-9a7f-95f9a7a534e8)
 
-I fucking love The Smiths #isolateMorrissey
+I fucking love The Smiths, if u cant tell 
 
 ![image](https://github.com/user-attachments/assets/aa74c40a-9842-4e7e-9a7f-95f9a7a534e8)
 
