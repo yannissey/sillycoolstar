@@ -18,7 +18,7 @@ I fucking love The Smiths, if u cant tell
 
 ![image](https://github.com/user-attachments/assets/aa74c40a-9842-4e7e-9a7f-95f9a7a534e8)
 
-i love my bf
+i love my bf haha
 
 ![image](https://github.com/user-attachments/assets/5043d5f6-5845-4515-beab-e2603a0aee8b)
 
