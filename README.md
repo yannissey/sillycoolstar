@@ -1,6 +1,6 @@
 ![image](https://github.com/user-attachments/assets/14218679-3323-47a9-839a-53cd01eb701a)
 
-Hey ! U probably came here from ponytown/ashes town hehe
+Hey ! U probably came here from ponytown/ashes town
 
 ![image](https://github.com/user-attachments/assets/5043d5f6-5845-4515-beab-e2603a0aee8b)
 
