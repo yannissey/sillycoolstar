@@ -1,4 +1,4 @@
-Hey ! U probably came here from ponytown/ashes town
+Heyy I literally have no freaking idea why this thing isnt displaying on my profile,, you're really smart for clicking this. but there isnt anything interesting , sadly.
 
 ![image](https://github.com/user-attachments/assets/5043d5f6-5845-4515-beab-e2603a0aee8b)
 
